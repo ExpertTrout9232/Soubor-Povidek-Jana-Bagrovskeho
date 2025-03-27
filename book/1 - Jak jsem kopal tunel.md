@@ -6,3 +6,4 @@ Připravil jsem se na odjezd do tunelářského obchodu, vzal jsem si s sebou 13
 Ihned jsem se začal točit dokola kolem sebe a započal dělat výkyvy, to je můj způsob vyrovnávání se s náhlým stresem. Chvíli jsem pokračoval a dělal takové psí kusy a pak se z mlhy v dálce vynořil vlak jedoucí mimo koleje. Zastavil vedle mě a strojvedoucí na mě křičel: „Mladej, nastup si a nezdržuj, ještě musíme naložit spoustu dalších lidí.“ Já jsem tedy nastoupil, tak jak mi bylo řečeno. Ve chvíli, co jsem zvedl poslední nohy ze země, se vlak rozjel rychlostí blížící se rychlosti nákladní helikoptéry vpřed.
 
 Ani jsem se nenadál a za pár okamžiků jsem se ocitl na zahradě svého bydliště. „No, tak tunel asi nebude,“ povzdychl jsem si. Nakonec jsem sice nic neudělal, ale alespoň mám na zahradě zahradního trpaslíka, kterého mi věnoval náhodný podomní prodejce ve vlaku.
+d
