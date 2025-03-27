@@ -10,4 +10,3 @@ Moc mě to nezaskočilo, tohle se mi stává na denní bázi. Položil jsem teda
 Najednou slyším ženský hlas prolínat lodí: „Warning, initiating emergency FTL jump to Super Earth.“ Zděsil jsem se, už jsem jenom cítil, jak se moje tělo začíná natahovat, a pak zazněla rána jak z děla.
 
 Zezadu lodi se najednou zjevily tři postavy oděné v těžkém brnění a kápi. Pomalu se ke mně přiblížili a řekli mi: „Kde se tu bereš? No teď není čas na otázky, utíkej na Super Earth!“ Poděkoval jsem za uvítání a ani jsem nestihl nic doříct a už mě táhli do mrazicí komory. Začal jsem tuhnout a pocítil jsem nějakou únavu. Usnul jsem.
-
